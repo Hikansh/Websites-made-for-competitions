@@ -1,0 +1,1 @@
+# Websites made for competitions
